@@ -3,4 +3,4 @@ _𝓢𝓮𝓳𝓪 𝓑𝓮𝓶 𝓥𝓲𝓷𝓭𝓸! 𝓔𝓾 𝓼𝓸𝓾 𝓐�
 
 **_Estudo na Escola [Nicota] (instagram/escola.donanicota)_**
 
-![](https://tenor.com/eMTj4AucmVQ.gif)
+![](https://media1.tenor.com/m/Nd29ocoxViwAAAAC/melanie-martinez-the-voice.gif)
