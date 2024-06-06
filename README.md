@@ -3,4 +3,4 @@
 
 **_Estudo na Escola [Nicota] (instagram/escola.donanicota)_** 
 
-![https://pin.it/5PNplvjbV](link)
+![https://pin.it/5PNplvjbV]
