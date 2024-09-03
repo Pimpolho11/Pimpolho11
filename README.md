@@ -2,9 +2,7 @@ _𝓢𝓮𝓳𝓪 𝓑𝓮𝓶 𝓥𝓲𝓷𝓭𝓸! 𝓔𝓾 𝓼𝓸𝓾 𝓐�
 
 **_→Tenho 17 anos_**
 
-
-**The greatest power you can have is acceptance.
-**
+𝑻𝒉𝒆 𝒈𝒓𝒆𝒂𝒕𝒆𝒔𝒕 𝒑𝒐𝒘𝒆𝒓 𝒚𝒐𝒖 𝒄𝒂𝒏 𝒉𝒂𝒗𝒆 𝒊𝒔 𝒂𝒄𝒄𝒆𝒑𝒕𝒂𝒏𝒄𝒆.
 
 **_Estudo na Escola [Nicota](https://instagram/escola.donanicota/)_**
 
